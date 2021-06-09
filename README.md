@@ -1,2 +1,0 @@
-# innovationX
-Let's innovate
